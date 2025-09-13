@@ -1,2 +1,2 @@
 # Rangilo_Rajwado
-Rangilo Rajwado menu
+rangilo rajwado unlimited restaurant sirohi ka manu
